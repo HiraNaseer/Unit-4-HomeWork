@@ -1,0 +1,2 @@
+The assignment was really a very good practice. I really appreciate the time allocated to us since it was a lengthy one.
+I have had help and doubt clearance from slackbot and my tutor Sarbajit. Thank you for the help and in identifying my errors.
